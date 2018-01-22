@@ -1,1 +1,1 @@
-Olhos castalhos, pele clara
+Olhos castalhos, pele clara,cabelos escuros
